@@ -1,4 +1,4 @@
-# Hi there 👋 I'm OptimalChips
+# Hi there 👋 I'm Shlok
 
 ## About Me
 
